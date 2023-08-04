@@ -1,1 +1,0 @@
-# qajul23-SerhiiTsybulko
